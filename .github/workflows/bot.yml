@@ -1,4 +1,4 @@
-name: bp runner
+name: bp bot
 
 on:
   schedule:
