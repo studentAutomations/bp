@@ -1,6 +1,6 @@
 Advanced search...
 Forums
-Search results: 77
+Search results: 78
 1
 (current)
 2
@@ -12,6 +12,12 @@ Search results: 77
 8
 »
 Next page
+News forum -> Резултати испита - ДЕЦЕМБАР 2024
+by Leonid Stoimenov - Wednesday, 18 December 2024, 1:23 PM
+У прилогу су резултати испита за испитни рок Децембар 2024.
+DecBP.pdf
+Permalink
+See this post in context
 News forum -> Kolokvijum P2 (2024/2025) -> Odgovor: Kolokvijum P2 (2024/2025)
 by Leonid Stoimenov - Thursday, 12 December 2024, 10:06 AM
 Poštovani studenti,
@@ -93,14 +99,6 @@ Objavljeni su rezultati ispitnog roka oktobar II 2024. godine.
 Upis ocena će biti obavljen u utorak 01.10.2024. godine u 11:00h u kancelariji 2 na M2.
 Čestitke svima koji su položili ispit!
 
-Permalink
-See this post in context
-News forum -> Резултати испита - ОКТОБАР
-by Leonid Stoimenov - Thursday, 19 September 2024, 2:26 PM
-У прилогу су резултати испита за ОКТОБАР.
-Упис оцена је у понедељак, 23.9.24. у 13:00 у просторији М2-2.
-Радове можете да погледате у истом термину.
-OktBP.pdf
 Permalink
 See this post in context
 1
